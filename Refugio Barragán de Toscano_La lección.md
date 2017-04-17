@@ -58,4 +58,4 @@
 <p>que aprovechó su lección.</p>
 <br>
 <br>
-*Diario del Hogar*. Año VII. Número 173. México. 5 de abril de 1888. p. 2.
+<p><i>*Diario del Hogar</i>. Año VII. Número 173. México. 5 de abril de 1888. p. 2.<p>
