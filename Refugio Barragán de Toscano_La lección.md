@@ -59,3 +59,4 @@
 <br>
 <br>
 <p><i>*Diario del Hogar</i>. Año VII. Número 173. México. 5 de abril de 1888. p. 2.<p>
+<p>Trasnscripción y edición: Haydeé Salmones<p>
